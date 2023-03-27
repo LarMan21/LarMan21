@@ -13,4 +13,5 @@
 - 📫 How to reach me: rooneyg26@wpsma.org
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like baseball
+- ![image](https://user-images.githubusercontent.com/123981933/227971236-d6ca62a5-66ec-43fd-a034-a51f18d21627.png)
 -->
